@@ -1,1 +1,1 @@
-# firstRepo
+benım yazdıkalrım emre yılmaz
